@@ -1,1 +1,1 @@
-i learn pyton today it is Easy
+As an ai student Pythin is must
